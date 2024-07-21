@@ -1,6 +1,6 @@
 # Ski 2025
 
-Here are some offers I researched for skiing in 2025. I assumed a group of 10 and assumed we'll go at the end of January. Prices in £ are at today's exchange rates.
+Here are some suggestion of how we could plan skiing in 2025 if we wanted to go to Niseko, Japan. I assumed a group of 10 and assumed we'll leave on the 17th or 18th of January and come back on the 26th. Prices in £ are at today's exchange rates.
 
 ## Ski 2024
 
