@@ -63,3 +63,7 @@ Just an estimate - offers can change, the exchange rate can fluctuate etc.
 #### Without a short stop in Tokyo (8 days):  
 £1,068 (flight to Sapporo) + £495 (accomodation) + £255 (ski pass) + £180 (gear) + £95 (cars, gas, tolls)   
 = £2,093 pp + ski lessons + food
+
+### Visas
+
+Those of us with [UK, Portuguese, Hungarian or German passports can enter Japan visa-free for 90 days](https://www.mofa.go.jp/j_info/visit/visa/short/novisa.html). Japanese citizens can come and go as they please of course. The [rules for Chinese citizens](https://www.mofa.go.jp/j_info/visit/visa/topics/china.html) read a bit arcane to me, but it sounds like it should be possible, esp. if you've gone in recent years? At least we'll have to make sure to get flights and hotels confirmed before we go.
